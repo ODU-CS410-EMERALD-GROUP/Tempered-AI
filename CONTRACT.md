@@ -36,7 +36,7 @@
 **Brianna Thomas**
 - **Email:** Bthom083@odu.edu
 - **GitHub Username:** BriaTheCreator
-- **Availability:**
+- **Availability:** Im usually available on the weekdays from 8am to 5 pm> After that I babysit like 7 kids.
 
 **Christian Biehn**
 - **Email:** cbieh001@odu.edu
