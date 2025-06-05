@@ -21,7 +21,7 @@
 **Zemi Gebreyohannes**
 - **Email:** zgebr001@odu.edu
 - **GitHub Username:** ZemYG21
-- **Availability:** Weekdays any time after 2pm, I'm free on weekends with 24-hour notice.
+- **Availability:** I’m available on weekdays any time after 2:00 PM, except Wednesdays from 5:30 to 9:30 PM. I'm also free on weekends with 24 hour notice. 
 
 **Alex Gignac**
 - **Email:** agign001@odu.edu
